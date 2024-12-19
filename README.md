@@ -6,4 +6,4 @@
 - 🔭 Working on **CarZoomo**
 - CIO of [<a href="https://carzoomo.com/" rel="dofollow">https://carzoomo.com/</a>]([https://carzoomo.com/](https://carzoomo.com/))
 
-- 📫 Reach me **hashim@websocially.io**
+- 📫 Reach out to me at: **hashim@websocially.io**
